@@ -8,4 +8,6 @@ Meu nome é Geovana Bernardo
 
   ### Você pode entrar em contato comigo📫
 
-  
+ geovanna.bernardo1603@gmail.com
+ 
+ @Geh_slv
